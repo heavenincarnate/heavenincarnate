@@ -5,12 +5,16 @@
 𝓢unday 🪽 𝓗e , 𝓐ngel
 
 𝙏𝙖𝙠𝙚𝙣 . 𝘽𝙞𝙛𝙡𝙪𝙭 + 𝙋𝙤𝙡𝙮𝙖𝙢𝙤𝙧𝙮
+
 ![IMG_1214](https://github.com/user-attachments/assets/951ccff0-4c98-408a-ac3c-0a76ed7d9709)
 
 𝘾+𝙝 𝙖𝙡𝙬𝙖𝙮𝙨 𝙬𝙚𝙡𝙘𝙤𝙢𝙚
+
 𝙎𝙪𝙣𝙩𝙪𝙧𝙞𝙣𝙚 𝙙𝙣𝙞, 𝘼𝙫𝙚𝙣 𝙞𝙨 𝙢𝙮 𝙡𝙞𝙩𝙩𝙡𝙚 𝙗𝙧𝙤𝙩𝙝𝙚𝙧 !
 
 ![IMG_1218](https://github.com/user-attachments/assets/5a9a7fdd-3186-4e2b-981d-048ac2f95ebd)
+
+
 
 
 
