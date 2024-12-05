@@ -22,4 +22,4 @@ wip
 
 I LOVE MY SPOTIFY WRAPPED CHAT LOOK!
 ![IMG_1273](https://github.com/user-attachments/assets/07709418-8312-4fe9-aef8-33c8a744a28a)
-i would have mroe minutes listened if my spotify wrapped stayed, rip💔
+i would have mroe minutes listened if my spotify premium stayed, rip💔
