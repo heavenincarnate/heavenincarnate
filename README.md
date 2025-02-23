@@ -44,7 +44,7 @@ endo systems
 
 anyone can int! as long as you dont fit the dni criteria, c+h is always very welcome unless name says otherwise
 iwcare wld be appreciated for c+h too like as an exception, i rly tend to feel comforted by cuddles n stuff on pt^_^
-robin, boothill and aven int plss!! aven as a /p tho!!
+robin, boothill and aven int plss!!
 whisp for gi and hsr uids, both NA
 
 ![IMG_1222](https://github.com/user-attachments/assets/30fc66b7-fa02-4136-a2c2-5b845019814e)
